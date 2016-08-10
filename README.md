@@ -1,17 +1,23 @@
 # 欢迎来到翻墙部落！
 
-![](https://raw.githubusercontent.com/osurf/osurf/master/tu1.gif)
-**最新翻墙软件下载**
+打开天窗,听一听外面的声音
+
+翻越红墙,看一看河蟹身后的世界...
+
+网络畅游,看真实资讯!指归途,解灾难,稍纵即逝的良机!
+
+![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
+**●最新翻墙软件下载**
 
 
-电脑版：  
+【电脑版】  
 
 **自由门** [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
 **无界浏览** [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
 
-安卓版：
+【安卓版】
 
 **无界一点通**
 
@@ -25,11 +31,13 @@
 
 
 
-![](https://raw.githubusercontent.com/osurf/osurf/master/tu3.gif)
+![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 
-**快退出共产党、共青团、少先队，选择美好未来，保平安！**
+**●快退出共产党、共青团、少先队，保平安！**
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
+
+快抹去兽的印记，声明退出党、团、队，拥有美好未来！
 
 
 [提交网址1](http://t.cn/RGdiI4D)  
@@ -38,9 +46,24 @@
 [提交网址4](http://t.cn/Rqz22RT) 
 
 
-![](https://raw.githubusercontent.com/osurf/osurf/master/tu4.gif)
 
-**了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
+**●经典视频下载**（高速）
+
+64天安门事件  朝鲜战争始末   江泽民卖国
+
+纪录片：我们告诉未来 
+
+一、气功铺路  二、大法开传  三、破迷与正心  四、从常人到修炼人
+
+五、山雨欲来  六、在魔难中  七、艰难岁月  八、真相与人心 
+
+九、来源与使命  十、封锁与反封锁
+
+九评共产党 [在线播放](https://git.io/tv123)
+
+![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
+
+**●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
 [点击访问](http://dafa.1x.net) 
 
@@ -49,20 +72,7 @@
 [备用3](http://fa.x9.eu)
 
 
-**经典视频下载**（高速）
-
-64天安门事件
-
-朝鲜战争始末
-
-江泽民卖国
-
-我们告诉未来
-
-九评共产党
-
-
-**友好链接**
+**●友好链接**
 
 [网门](https://github.com/ogate/ogate)    [动态网](https://github.com/bannedbook/fanqiang/wiki#to-dtw)  [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw)  [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)
 
