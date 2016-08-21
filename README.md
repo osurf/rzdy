@@ -56,20 +56,20 @@
 
 **●经典视频下载**（高速）
 
-【64天安门事件】  【朝鲜战争始末 [下载](http://lxdqncdn.miaopai.com/stream/2vcnveTf-hGWW1G7hnemig__.mp4)】  【江泽民卖国】
+【64天安门事件】  【朝鲜战争始末 [下载](http://dlqncdn.miaopai.com/stream/2vcnveTf-hGWW1G7hnemig__.mp4)】  【江泽民卖国】
 
-【地主刘文彩真相  [下载](http://lxdqncdn.miaopai.com/stream/jDvOW--zEwgA4W2itqJmDA__.mp4)】  【大跃进真相 [下载](http://lxdqncdn.miaopai.com/stream/mDsZo7HwBJHJWemvkx8Kzg__.mp4)】
+【地主刘文彩真相  [下载](http://dlqncdn.miaopai.com/stream/jDvOW--zEwgA4W2itqJmDA__.mp4)】  【大跃进真相 [下载](http://dlqncdn.miaopai.com/stream/mDsZo7HwBJHJWemvkx8Kzg__.mp4)】
 
 【纪录片：我们告诉未来 】
 
-一、气功铺路 [（1）](http://lxdqncdn.miaopai.com/stream/tv-r7aXBjzu956oNUvGfRg__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/ZEluxxk0u3crRVSfdQj5kA__.mp4) 二、大法开传 [（1）](http://lxdqncdn.miaopai.com/stream/hAyTo5PBSTrrtgVOxiH9Pw__.mp4)  [（2）](http://lxdqncdn.miaopai.com/stream/1XmLEYudYYGrWLrZRGgFZw__.mp4)三、破迷与正心 [（1）](http://lxdqncdn.miaopai.com/stream/5eK75ACUKNuBF~rcaup1-A__.mp4) [（2）]( http://lxdqncdn.miaopai.com/stream/UewFI9Ua7uuxlmT--Q750w__.mp4) 
+一、气功铺路 [（1）](http://dlqncdn.miaopai.com/stream/tv-r7aXBjzu956oNUvGfRg__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/ZEluxxk0u3crRVSfdQj5kA__.mp4) 二、大法开传 [（1）](http://dlqncdn.miaopai.com/stream/hAyTo5PBSTrrtgVOxiH9Pw__.mp4)  [（2）](http://dlqncdn.miaopai.com/stream/1XmLEYudYYGrWLrZRGgFZw__.mp4)三、破迷与正心 [（1）](http://dlqncdn.miaopai.com/stream/5eK75ACUKNuBF~rcaup1-A__.mp4) [（2）]( http://dlqncdn.miaopai.com/stream/UewFI9Ua7uuxlmT--Q750w__.mp4) 
 
-四、从常人到修炼人 [（1）](http://lxdqncdn.miaopai.com/stream/LpAGgwCKe4QZAk22Pu1Cxg__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/AFrvi3CPHgZkH8vGYLsXog__.mp4) 五、山雨欲来 [（1）](http://lxdqncdn.miaopai.com/stream/R5Y4KL3VPHkRGWgn2iGUNQ__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/WHxJ4AzQSzgNCCShvPx5~w__.mp4) 六、在魔难中 [（1）](http://lxdqncdn.miaopai.com/stream/IqCs9Ay17dYUyKa-vI-hWQ__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/bdzoWZsC3n3nRgmsj0CRbw__.mp4) 
+四、从常人到修炼人 [（1）](http://dlqncdn.miaopai.com/stream/LpAGgwCKe4QZAk22Pu1Cxg__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/AFrvi3CPHgZkH8vGYLsXog__.mp4) 五、山雨欲来 [（1）](http://dlqncdn.miaopai.com/stream/R5Y4KL3VPHkRGWgn2iGUNQ__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/WHxJ4AzQSzgNCCShvPx5~w__.mp4) 六、在魔难中 [（1）](http://dlqncdn.miaopai.com/stream/IqCs9Ay17dYUyKa-vI-hWQ__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/bdzoWZsC3n3nRgmsj0CRbw__.mp4) 
 
-七、艰难岁月 [（1）](http://lxdqncdn.miaopai.com/stream/Ry7boHNeJEdaz0DuEhYEHA__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/b~NaLbNyz6GIg5jJMtt2lA__.mp4) [（3）](http://lxdqncdn.miaopai.com/stream/DwdgWH5~E0iNt-ructKknA__.mp4)八、真相与人心 [（1）](http://lxdqncdn.miaopai.com/stream/WGARteOy5DaA18rmq63~sg__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/yiA8iStL-Bv5RWPje-t8kQ__.mp4) [（3）](http://lxdqncdn.miaopai.com/stream/5SoiuzEDbG3pe4GSXSeBoA__.mp4)
+七、艰难岁月 [（1）](http://dlqncdn.miaopai.com/stream/Ry7boHNeJEdaz0DuEhYEHA__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/b~NaLbNyz6GIg5jJMtt2lA__.mp4) [（3）](http://dlqncdn.miaopai.com/stream/DwdgWH5~E0iNt-ructKknA__.mp4)八、真相与人心 [（1）](http://dlqncdn.miaopai.com/stream/WGARteOy5DaA18rmq63~sg__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/yiA8iStL-Bv5RWPje-t8kQ__.mp4) [（3）](http://dlqncdn.miaopai.com/stream/5SoiuzEDbG3pe4GSXSeBoA__.mp4)
 
-九、来源与使命 [（1）](http://lxdqncdn.miaopai.com/stream/K0dX-2k-rlZ3IsDk69WYVg__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/6G6xTbs-CGPz2a0EVRoHEA__.mp4) [（3）](http://lxdqncdn.miaopai.com/stream/SI51Se2EMtDK-CYhOZL~fg__.mp4)  [（4）](http://lxdqncdn.miaopai.com/stream/ZxPEMEm9h4xq~q-djAL56w__.mp4)
-十、封锁与反封锁 [（1）](http://lxdqncdn.miaopai.com/stream/RXq8Su431VWmeS166zu5bA__.mp4) [（2）](http://lxdqncdn.miaopai.com/stream/FYPpY~WS5HQ~L8-t9MSG5g__.mp4) [（3）](http://lxdqncdn.miaopai.com/stream/qFvdOjQuJffU37SFl4nnTg__.mp4) [（4）](http://lxdqncdn.miaopai.com/stream/ySNp236d1RqmaxV4zL0M4Q__.mp4)
+九、来源与使命 [（1）](http://dlqncdn.miaopai.com/stream/K0dX-2k-rlZ3IsDk69WYVg__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/6G6xTbs-CGPz2a0EVRoHEA__.mp4) [（3）](http://dlqncdn.miaopai.com/stream/SI51Se2EMtDK-CYhOZL~fg__.mp4)  [（4）](http://dlqncdn.miaopai.com/stream/ZxPEMEm9h4xq~q-djAL56w__.mp4)
+十、封锁与反封锁 [（1）](http://dlqncdn.miaopai.com/stream/RXq8Su431VWmeS166zu5bA__.mp4) [（2）](http://dlqncdn.miaopai.com/stream/FYPpY~WS5HQ~L8-t9MSG5g__.mp4) [（3）](http://dlqncdn.miaopai.com/stream/qFvdOjQuJffU37SFl4nnTg__.mp4) [（4）](http://dlqncdn.miaopai.com/stream/ySNp236d1RqmaxV4zL0M4Q__.mp4)
 
 【九评共产党】 [在线播放](https://git.io/tv123)
 
