@@ -56,9 +56,10 @@
 
 **●经典视频下载**（高速）
 
-【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0) 【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0)
+【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0) 
 
-【地主刘文彩真相 】
+【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0)
+【地主刘文彩真相 】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMl84SzFUUw?session_id=1472013790229112002&inline=0)
 
 【纪录片：我们告诉未来 】 [高速下载](https://mega.nz/#F!ctwFTTaQ!kz9NNpS6-4MnyaCx6AzpfA)
 
@@ -104,4 +105,3 @@
 
 
 -
-
