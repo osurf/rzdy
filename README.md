@@ -56,7 +56,7 @@
 
 **●经典视频下载**（高速）
 
-【64天安门事件】  【朝鲜战争始末】  【江泽民卖国】
+【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0) 【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0)
 
 【地主刘文彩真相 】
 
@@ -67,6 +67,25 @@
  六、在魔难中| 七、艰难岁月 | 八、真相与人心|九、来源与使命|十、封锁与反封锁
 
 【九评共产党】 [在线播放](https://git.io/tv123) [高速下载](https://mega.nz/#F!Z94yBTbb!CV0DrfTCPTQr9P2NYR_row)
+
+九评之一：评共产党是什么
+
+九评之二：评中国共产党是怎样起家的
+
+九评之三：评中国共产党的暴政 
+   
+九评之四：评共产党是反宇宙的力量
+
+九评之五：评江泽民与中共相互利用迫害法轮功
+
+九评之六：评中国共产党破坏民族文化
+
+九评之七：评中国共产党的杀人历史
+
+九评之八：评中国共产党的邪教本质
+
+九评之九：评中国共产党的流氓本性
+
 
 ![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
 
@@ -85,5 +104,4 @@
 
 
 -
-
 
