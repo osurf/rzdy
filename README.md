@@ -101,7 +101,7 @@
 
 **●友好链接**
 
-[网门OGate](https://github.com/ogate/ogate)   | [动态网](https://github.com/bannedbook/fanqiang/wiki#to-dtw) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)
+[网门oGate](https://github.com/ogate/ogate)   | [动态网](https://github.com/bannedbook/fanqiang/wiki#to-dtw) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)
 
 
 -
