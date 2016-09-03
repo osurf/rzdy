@@ -14,28 +14,36 @@
 
 **本页永久短网址**：**https://git.io/osurf**
 
+
+--------------------------------------------------------------------------
+
 **●最新翻墙软件下载**
 
 
-【电脑版】  
+【电脑版翻墙软件】  
 
 **自由门** [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
 **无界浏览** [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
+**无界火狐扩展**  [点击下载最新版](https://web.opendrive.com/api/v1/download/file.json/ODlfMTgwOTE4Ml9WbWM2Nw?session_id=1472873577054103007&inline=0)
 
-【安卓版】
+浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
+
+
+【安卓版翻墙软件】
 
 **无界一点通**
 
 安卓版的翻墙软件, 让您看到没有被过滤的真实讯息。适用于安卓手机/安卓机顶盒等安卓平台。
 
-下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk)
+最新3.8版 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk)
 
 **网门安卓版** 
 
 下载地址[网门安卓版](https://git.io/ogatea)
 
+--------------------------------------------------------------------------
 
 
 ![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
@@ -52,7 +60,7 @@
 [提交网址3](http://url.cn/28le7Vs)   
 [提交网址4](http://t.cn/Rqz22RT) 
 
-
+--------------------------------------------------------------------------
 
 **●经典视频下载**（高速）
 
@@ -87,6 +95,7 @@
 
 九评之九：评中国共产党的流氓本性
 
+--------------------------------------------------------------------------
 
 ![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
 
@@ -98,6 +107,9 @@
 [备用2](http://66.3d.lc) 
 [备用3](http://fa.x9.eu)
 
+
+
+--------------------------------------------------------------------------
 
 **●友好链接**
 
