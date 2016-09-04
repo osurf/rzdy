@@ -4,7 +4,7 @@
 
 
 翻越红墙,看一看河蟹身后的世界,打开天窗,听一听外面的声音...指归途,解灾难,稍纵即逝的良机!
-<P align=center><FONT size=6><A href="http://t.cn/Rc2BreW">>>>看动态网，晓天下事,点击直访！<<<</A></FONT></P>
+<P align=center><A href="http://t.cn/Rc2BreW">>>>看动态网，晓天下事,点击直访！<<<</A></P>
 
 **本页固定网址**：**https://github.com/osurf/osurf** 
 
