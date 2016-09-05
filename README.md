@@ -3,8 +3,7 @@
 # 欢迎来到翻墙部落！
 
 
-翻越红墙,看一看河蟹身后的世界,打开天窗,听一听外面的声音...指归途,解灾难,稍纵即逝的良机!
-<P ><A href="http://t.cn/Rc2BreW">>>>看动态网，晓天下事,点击直访！<<<</A></P>
+翻越红墙,看一看河蟹身后的世界,打开天窗,听一听外面的声音...<A href="http://t.cn/Rc2BreW">>>>看动态网，晓天下事,点击直访！<<<</A>
 
 **本页固定网址**：**https://github.com/osurf/osurf** 
 
@@ -113,7 +112,5 @@
 
 [网门oGate](https://github.com/ogate/ogate)   | [动态网](http://t.cn/Rc2Brxb) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)
 
-
-反馈：lili.9583@gmail.com
 
 -
