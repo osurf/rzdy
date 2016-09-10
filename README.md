@@ -4,6 +4,8 @@
 
 打开天窗,听一听外面的声音...<A href="http://t.cn/Rc532Um">>>>看动态网，晓天下事,点击直访！<<<</A>
 
+**本页固定网址**：**https://github.com/osurf/osurf** 
+
 **本页固定短网址**：**https://git.io/osurf** 
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
@@ -96,7 +98,7 @@
 
 **●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
-[点击访问明慧网](http://t.cn/Rc53ysm) 
+[点击访问明慧网](http://t.cn/RccylYj) 
 
 [备用1](http://li.1x.de)
 [备用2](http://66.3d.lc) 
@@ -107,7 +109,11 @@
 
 **●友好链接**
 
-[网门oGate](https://github.com/ogate/ogate)   | [动态网](http://t.cn/Rc53ysm) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Rc53bJ2)
+[网门oGate](https://github.com/ogate/ogate)   | [动态网](http://t.cn/RccylYj) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/RccyjlB)
+
+QQ或360浏览器流氓拦截请放行。
+
+-
 
 
 -----------------------------------------------------------
