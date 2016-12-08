@@ -9,8 +9,7 @@
 **本页固定短网址**：**https://git.io/osurf** 
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
-
-【收藏方法】电脑访问可按Ctrl+D 键，手机访问请按手机收藏方法收藏
+**微信里直接点击打不开，请先点击右上角三个点，选择在浏览器中打开**
 
 ![](https://raw.githubusercontent.com/osurf/up/master/QR_1.jpg)
 
@@ -34,7 +33,7 @@
 
 **无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
-8月9日无界发布安卓版3.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk)
+8月9日无界发布安卓版3.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
 **网门安卓版** 
 
@@ -60,10 +59,10 @@
 
 **●经典视频下载**（高速）
 
-【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0) 
+【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0&2016)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0&2016) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0&2016) 
 
-【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0)
-【地主刘文彩真相 】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMl84SzFUUw?session_id=1472013790229112002&inline=0)
+【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0&2016)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0&2016)
+【地主刘文彩真相 】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMl84SzFUUw?session_id=1472013790229112002&inline=0&2016)
 
 【纪录片：我们告诉未来 】 [高速下载](https://mega.nz/#F!ctwFTTaQ!kz9NNpS6-4MnyaCx6AzpfA)
 
