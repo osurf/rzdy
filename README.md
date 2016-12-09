@@ -2,8 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音...<A href="http://t.cn/Rc532Um">>>>看动态网，晓天下事,点击直访！<<<</A>
-
+打开天窗,听一听外面的声音...<A href="http://t.cn/RI7OumK">看动态网</A>，<A href="http://t.cn/RI7O35x">晓天下事</A>,<A href="http://t.cn/RI7OBZi">点击直访</A>
 **本页固定网址**：**https://github.com/osurf/osurf** 
 
 **本页固定短网址**：**https://git.io/osurf** 
