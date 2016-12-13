@@ -2,7 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音...<A href="http://t.cn/RI7OumK">看动态网</A>，<A href="http://t.cn/RI7O35x">晓天下事</A>,<A href="http://t.cn/RI7OBZi">点击直访</A>
+打开天窗,听一听外面的声音...<A href="http://t.cn/RIU4uZJ">看动态网</A>，<A href="http://t.cn/RIU4ucp">晓天下事</A>,<A href="http://t.cn/RIU4uob">点击直访</A>
 
 **本页固定网址**：**https://github.com/osurf/osurf** 
 
@@ -51,8 +51,8 @@
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
 
-[提交网址1](http://t.cn/RGdiI4D)  
-[提交网址2](http://url.cn/28bWD07)  
+[提交网址1](http://t.cn/RIULDcj)  
+[提交网址2](http://t.cn/RIULD8f)  
 [提交网址3](http://url.cn/28le7Vs)   
 
 ---------------------------------------------------------
