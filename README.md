@@ -96,7 +96,7 @@
 
 **●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
-[点击访问明慧网](http://t.cn/RccylYj) 
+[点击访问明慧网](http://t.cn/RIUbjIU) 
 
 [备用1](http://li.1x.de)
 [备用2](http://66.3d.lc) 
@@ -107,7 +107,7 @@
 
 **●友好链接**
 
-[网门oGate](https://github.com/ogate/ogate)   | [动态网](http://t.cn/RccylYj) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/RccyjlB)
+[网门oGate](https://github.com/ogate/ogate)   | [动态网](http://t.cn/RIUbj9R) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/RIUbjj2)
 
 QQ或360浏览器流氓拦截请放行。
 
