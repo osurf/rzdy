@@ -90,6 +90,12 @@
 
 九评之九：评中国共产党的流氓本性
 
+【绝处逢生】
+
+各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。
+
+愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
+
 音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)
 在线收听 [点击收听](http://pan.baidu.com/s/1qYNHZ1E)  密码: gk8k
 
