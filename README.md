@@ -55,6 +55,8 @@
 
 8月9日无界发布安卓版3.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
+**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
+
 **网门安卓版** 
 
 下载地址[网门安卓版](https://git.io/ogatea)
