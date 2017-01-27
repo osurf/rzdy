@@ -47,7 +47,7 @@
 
 浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
 
-**爱博电视**  绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iPPOTV.rar)
+**爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iPPOTV.rar)
 
 【安卓版翻墙软件】
 
