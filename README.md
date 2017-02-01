@@ -4,8 +4,6 @@
 
 打开天窗,听一听外面的声音...<A href="http://t.cn/RIU4uZJ">看动态网</A>，<A href="http://t.cn/RIU4ucp">晓天下事</A>,<A href="http://t.cn/RIU4uob">点击直访</A>
 
-**本页固定网址**：**https://github.com/osurf/osurf** 
-
 **本页固定短网址**：**https://git.io/osurf** 
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
