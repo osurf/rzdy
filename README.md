@@ -97,7 +97,6 @@
 愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
 
 音频下载 [（一）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NTZfR2RoOEY?session_id=1482584641471816008&inline=0) [（二）](https://web.opendrive.com/api/v1/download/file.json/OTBfMTE3OTY4NThfWU8zV1g?session_id=1482584641471816008&inline=0)
-在线收听下载 [点击收听](http://pan.baidu.com/s/1qYNHZ1E)  密码: gk8k 如提示页面不存在，刷新页面即可。
 
 -------------------------------------------------------------
 
