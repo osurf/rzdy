@@ -18,7 +18,7 @@
 
 【电脑版翻墙软件】  看动态网，晓天下事！
 
-**自由门** 06月27日发布 自由门7.59版 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
+**自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
 **无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
