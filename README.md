@@ -51,7 +51,7 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://t.cn/RIULD8f) 
+[提交网址1](http://t.cn/RIVviIP) 
 
 [提交网址2](http://t.cn/RKAUsP8) 
 
