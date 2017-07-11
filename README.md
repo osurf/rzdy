@@ -2,7 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音...<A href="http://t.cn/RKGcLb5">看动态网，晓天下事，点击访问</A> | <A href="https://github.com/ogate/ogate" target=_blank>网门oGate</A>
+打开天窗,听一听外面的声音...<A href="http://t.cn/RKf55jB">一分钟了解真相！</A> | <A href="https://github.com/ogate/ogate" target=_blank>网门oGate</A>
 
 **本页固定短网址**：**https://git.io/osurf** 
 
@@ -16,7 +16,7 @@
 **●最新翻墙软件下载**
 
 
-【电脑版翻墙软件】  
+【电脑版翻墙软件】  看动态网，晓天下事！
 
 **自由门** 06月27日发布 自由门7.59版 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
@@ -30,7 +30,7 @@
 
 【安卓版翻墙软件】
 
-**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
+【★推荐★】**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
 8月9日无界发布安卓版3.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
