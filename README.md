@@ -2,7 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音...<A href="http://t.cn/RKf55jB">一分钟了解真相！</A> | <A href="https://github.com/ogate/ogate" target=_blank>网门oGate</A>
+打开天窗,听一听外面的声音...<A href="http://t.cn/RKf55jB">一分钟了解真相！(图片版)</A> | <A href="https://github.com/ogate/ogate" target=_blank>网门oGate</A>
 
 **本页固定短网址**：**https://git.io/osurf** 
 
