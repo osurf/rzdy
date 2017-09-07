@@ -38,7 +38,7 @@
 
 **网门安卓版** 
 
-下载地址[网门安卓版](https://raw.githubusercontent.com/odisk/Up/master/oGate.apk)
+下载地址[网门安卓版](https://git.io/ogatea2)
 
 ------------------------------------------------------------
 
