@@ -23,7 +23,7 @@
 
 **无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
-**无界火狐扩展**  [点击下载最新版](https://web.opendrive.com/api/v1/download/file.json/ODlfMTgwOTE4Ml9WbWM2Nw?session_id=1472873577054103007&inline=0)
+**无界火狐扩展**  2017-10-28 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1702.xpi)
 
 浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
 
