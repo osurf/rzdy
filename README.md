@@ -21,7 +21,7 @@
 
 **自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
-**无界浏览** 7月10日无界发布16.03版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+**无界浏览** 2017-10月28日无界发布17.02版[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
 **无界火狐扩展**  2017-10-28 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1702.xpi)
 
@@ -33,7 +33,7 @@
 
 【★推荐★】**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
-4月15日无界发布安卓版4.0 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
+10月18日无界发布安卓版4.1 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?1234)
 
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
