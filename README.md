@@ -21,7 +21,7 @@
 
 **自由门** 自由门7.61版（5月12日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
-**无界浏览** 2017-11月1日无界发布17.03[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+**无界浏览** 2017-11月12日无界发布17.04[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
 **无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
 
