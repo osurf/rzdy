@@ -12,7 +12,7 @@
 ![](https://raw.githubusercontent.com/osurf/up/master/QR_1.jpg)
 ----------------------------------------------------------------------
 
-**《共产主义的终极目的（中国篇）》  [点击下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip) 
+《共产主义的终极目的（中国篇）》  [点击下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip) 
  
  本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
  
