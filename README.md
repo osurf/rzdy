@@ -11,6 +11,7 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/QR_1.jpg)
 ----------------------------------------------------------------------
+![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
 《共产主义的终极目的（中国篇）》  [点击下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip) 
  
