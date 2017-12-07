@@ -11,7 +11,9 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/QR_1.jpg)
 ----------------------------------------------------------------------
-【中国古典舞技巧表演】 MP4高清视频 -->  [下载](https://od.lk/d/OTFfNTI3Mzc1OV8/%E4%B8%AD%E5%9C%8B%E5%8F%A4%E5%85%B8%E8%88%9E%E6%8A%80%E5%B7%A7%E8%A1%A8%E6%BC%94.mp4)  
+ 《共产主义的终极目的（中国篇）》 [点击下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip) 
+ 本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
+ 
 ----------------------------------------------------------------------
 
 **●最新翻墙软件下载**
@@ -70,7 +72,7 @@
 **绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
 **●经典视频下载**（高速）
-
+【中国古典舞技巧表演】 MP4高清视频 -->  [下载](https://od.lk/d/OTFfNTI3Mzc1OV8/%E4%B8%AD%E5%9C%8B%E5%8F%A4%E5%85%B8%E8%88%9E%E6%8A%80%E5%B7%A7%E8%A1%A8%E6%BC%94.mp4) 
 【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0&2016)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0&2016) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0&2016) 
 
 【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0&2016)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0&2016)
