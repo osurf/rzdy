@@ -41,13 +41,9 @@
 
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
-**网门安卓版** 
+**网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
-下载地址[网门安卓版](https://git.io/ogatea2)
-
-**神州正道安卓版**  看视频速度很快的。
-
-下载地址[神州正道安卓版](https://git.io/vQjqe)
+**神州正道安卓版**  下载地址[神州正道安卓版](https://git.io/vQjqe) 看视频速度很快的。
 ------------------------------------------------------------
 
 
