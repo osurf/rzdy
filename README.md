@@ -7,9 +7,7 @@
 **本页固定短网址**：**https://git.io/osurf**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
-**微信里直接点击打不开，请先点击右上角三个点，选择在浏览器中打开**
 
-![](https://raw.githubusercontent.com/osurf/up/master/QR_1.jpg)
 ----------------------------------------------------------------------
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
