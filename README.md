@@ -22,7 +22,7 @@
 
 【电脑版翻墙软件】  看动态网，晓天下事！
 
-**自由门** 自由门7.62版（11月28日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
+**自由门** 自由门7.63版（2018.1月6日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  
 
 **无界浏览** 2017-11月12日无界发布17.04[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
