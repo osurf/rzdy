@@ -73,10 +73,10 @@
 
 【中国古典舞技巧表演】 MP4高清视频 -->  [下载](https://od.lk/d/OTFfNTI3Mzc1OV8/%E4%B8%AD%E5%9C%8B%E5%8F%A4%E5%85%B8%E8%88%9E%E6%8A%80%E5%B7%A7%E8%A1%A8%E6%BC%94.mp4) 
 
-【伪火-天安门自焚真相】[点击下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMV92YnMwaw?session_id=1472013790229112002&inline=0&2016)【古今奇观-藏字石】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMF9wRmtPWA?session_id=1472013790229112002&inline=0&2016) 【64天安门事件】 [高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4MF9wVXZ5ZA?session_id=1472012527698604009&inline=0&2016) 
+【伪火-天安门自焚真相】[点击下载](https://raw.githubusercontent.com/osurf/up/master/wh.3gp)【古今奇观-藏字石】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/stone.3gp) 【64天安门事件】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/6-4.3gp) 
 
-【朝鲜战争始末】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg4Ml9DVUM3ZQ?session_id=1472012527698604009&inline=0&2016)  【江泽民卖国】[高速下载](https://web.opendrive.com/api/v1/download/file.json/NThfMTYxMTg3OF9STjNuaw?session_id=1472012527698604009&inline=0&2016)
-【地主刘文彩真相 】[下载视频](https://web.opendrive.com/api/v1/download/file.json/NTlfMTI2MDMyMl84SzFUUw?session_id=1472013790229112002&inline=0&2016)
+【朝鲜战争始末】[下载视频](https://raw.githubusercontent.com/osurf/up/master/koreawar.3gp)  【江泽民卖国】[高速下载](https://raw.githubusercontent.com/osurf/up/master/maiguo.3gp)
+【地主刘文彩真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/liuwencai.3gp) 【大跃进真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/DaYueJin.3gp)
 
 【纪录片：我们告诉未来 】 [高速下载](https://mega.nz/#F!ctwFTTaQ!kz9NNpS6-4MnyaCx6AzpfA)
 
