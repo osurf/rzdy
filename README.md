@@ -4,7 +4,7 @@
 
 打开天窗,听一听外面的声音...<A href="https://raw.githubusercontent.com/osurf/up/master/03.JPG">一分钟了解真相！(图片版)</A> | <A href="https://github.com/oGate2/oGate/blob/master/README.md">网门</A>
 
-**本页固定短网址**：**https://git.io/osurf**  推荐使用ie，火狐，chrome等非国产浏览器访问！
+**本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
