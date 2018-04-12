@@ -72,7 +72,8 @@
 
 **●经典视频下载**（高速）
 
-【《活摘 十年调查》】  -->  [在线播放01](https://rutube.ru/video/2adf8296aa690a51ef94a10edde035ff/)  [在线播放02](https://rutube.ru/video/a74b61cc1cf0f849bf7d061a0d249920/) 
+【《活摘 十年调查》】  [在线播放01](https://rutube.ru/video/2adf8296aa690a51ef94a10edde035ff/)  [在线播放02](https://rutube.ru/video/a74b61cc1cf0f849bf7d061a0d249920/) 
+
 1999年以后，在中国发生的活摘暴行，一个号称为人民服务的政党在活摘自己国民的器官，这是这个星球没有过的罪恶。今天此罪恶还在延续.。。。
 
 【伪火-天安门自焚真相】[点击下载](https://raw.githubusercontent.com/osurf/up/master/wh.3gp)【古今奇观-藏字石】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/stone.3gp) 【64天安门事件】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/6-4.3gp) 
