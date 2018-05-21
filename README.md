@@ -2,7 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音...<A href="https://raw.githubusercontent.com/osurf/up/master/03.JPG">一分钟了解真相！(图片版)</A> | <A href="https://github.com/oGate2/oGate/blob/master/README.md">网门</A>
+打开天窗,听一听外面的声音...<A href="https://github.com/szzd1/1/blob/master/README.md">在线翻墙网址代理大全</A> | <A href="https://github.com/oGate2/oGate/blob/master/README.md">网门</A>
 
 **本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
