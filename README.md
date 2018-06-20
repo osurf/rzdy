@@ -37,6 +37,8 @@
 
 【★推荐★】**无界一点通**安卓版的翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
+【★推荐★】**自由浏览安卓版**  下载地址：[自由浏览](https://github.com/greatfire/x/raw/master/FreeBrowser.apk) 无需翻墙，畅快浏览谷歌、推特、脸书。扫码下载：![自由浏览](https://github.com/greatfire/xx/raw/master/FreeBrowser.apk.png)
+
 2018-6月6日无界发布安卓版4.5 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?4.5)
 
 **新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
