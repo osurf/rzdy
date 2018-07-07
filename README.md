@@ -108,7 +108,7 @@
 
 **●友好链接**
 
-[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
+[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|
 
 QQ或360浏览器流氓拦截请放行。
 
