@@ -10,6 +10,17 @@
 
 ----------------------------------------------------------------------
 
+**新唐人新年期间独家播出2019全球华人新年晚会**
+
+限于中国大陆地区收看。请通过翻墙软体自由门或无界浏览观看。
+神韵晚会四次播出时间：北京时间
+2月4日(周一)晚上8:00-11:00
+2月4日(周一)晚上11:00-凌晨2:00
+2月5日(周二)早上8:30-11:30
+2月5日(周二)下午2:00-5:00
+
+----------------------------------------------------------------------
+
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
 《共产主义的终极目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/osurf/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
@@ -23,7 +34,7 @@
 
 【电脑版翻墙软件】  看动态网，晓天下事！
 
-**自由门** 自由门7.64版（2018.1月9日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自由门** 自由门7.65版（2019年2月2日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界浏览** 无界浏览19.01 (2019年1月27日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
