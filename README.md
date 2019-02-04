@@ -8,8 +8,8 @@
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，敬请广传,功德无量！**
 ----------------------------------------------------------------------
+![](https://raw.githubusercontent.com/osurf/up/master/2019_SY-Spectacular.png)
 
-![https://raw.githubusercontent.com/osurf/up/master/2019_SY-Spectacular.png)
 **新唐人新年期间独家播出2019全球华人新年晚会**
 
 限于中国大陆地区收看。请通过翻墙软体自由门或无界浏览观看。
