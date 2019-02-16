@@ -23,9 +23,9 @@
 
 【电脑版翻墙软件】  看动态网，晓天下事！
 
-**自由门** 自由门7.65版（2019年2月2日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自由门** 自由门7.66版（2019年2月15日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
-**无界浏览** 无界浏览19.01 (2019年1月27日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+**无界浏览** 无界浏览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
 **无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
 
