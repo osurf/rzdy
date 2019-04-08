@@ -23,7 +23,7 @@
 
 【电脑版翻墙软件】  看动态网，晓天下事！
 
-**自由门** 自由门7.66版（2019年2月15日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自由门** 自由门7.67版（2019年4月3日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界浏览** 无界浏览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
