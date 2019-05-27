@@ -2,9 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... | <A href="https://github.com/oGate2/oGate/blob/master/README.md">网门</A>
-
-<P><A href="https://git.io/fjCRf" target=_blank>九评共产党</A>|<A href="https://git.io/dajiyan" target=_blank>大陆时事</A>|<A href="https://git.io/fj3Go" target=_blank>全球热点</A>|<A href="https://git.io/fjOvK" target=_blank>时事评论</A>|<A href="https://git.io/fjCWz" target=_blank>中华正统文化</A></P>
+打开天窗,听一听外面的声音... | <A href="https://github.com/oGate2/oGate/blob/master/README.md">网门</A><P><A href="https://git.io/fjCRf" target=_blank>九评共产党</A>|<A href="https://git.io/dajiyan" target=_blank>大陆时事</A>|<A href="https://git.io/fj3Go" target=_blank>全球热点</A>|<A href="https://git.io/fjOvK" target=_blank>时事评论</A>|<A href="https://git.io/fjCWz" target=_blank>中华正统文化</A></P>
 
 **本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
