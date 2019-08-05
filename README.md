@@ -2,7 +2,7 @@
 
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4>|</FONT></STRONG><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>九评共产党</FONT></STRONG></A><STRONG><FONT size=4>|</FONT></STRONG><A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4>|</FONT></STRONG><A href="https://git.io/fj3Go" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4>|</FONT></STRONG><A href="https://git.io/fjOvK" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4>|</FONT></STRONG><A href="https://git.io/fjCWz" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
+打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> |</FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>香港反送中</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fj3Go" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fjOvK" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fjCWz" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
 **本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
@@ -65,7 +65,7 @@
 ---------------------------------------------------------
 **●TXT电子书下载**
 
-**九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
+**九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
 **解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
 **江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
 **风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
