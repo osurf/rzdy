@@ -2,7 +2,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>香港反送中</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fj3Go" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fjOvK" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fjCWz" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
+打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/JeO7i" target=_blank><STRONG><FONT size=4>香港反送中</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
 **本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
@@ -110,7 +110,7 @@
 
 **●友好链接**
 
-[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://git.io/dajiyan)|[新唐人电视台](https://github.com/dfcbzs/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#1)
+[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://git.io/JeO7n)|[新唐人电视台](https://git.io/JeO7X)
 
 QQ或360浏览器流氓拦截请放行。
 
