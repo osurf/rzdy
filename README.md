@@ -64,8 +64,8 @@
 发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
 
 ---------------------------------------------------------
-**●TXT电子书下载**
-
+**●电子书下载**
+**最新PDF电子期刊《真相》：[点击下载](https://raw.githubusercontent.com/osurf/osurf/master/zx96.pdf) 
 [禁书在线阅读](https://git.io/JeO72)
 **九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
 **解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
