@@ -86,14 +86,25 @@
 
 1999年以后，在中国发生的活摘暴行，一个号称为人民服务的政党在活摘自己国民的器官，这是这个星球没有过的罪恶。今天此罪恶还在延续.。。。
 
-【伪火-天安门自焚真相】[点击下载](https://raw.githubusercontent.com/osurf/up/master/wh.3gp)【古今奇观-藏字石】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/stone.3gp) 【64天安门事件】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/6-4.3gp) 
+【伪火-天安门自焚真相】[点击下载](https://raw.githubusercontent.com/osurf/up/master/wh.3gp)
 
-【朝鲜战争始末】[下载视频](https://raw.githubusercontent.com/osurf/up/master/koreawar.3gp)  【江泽民卖国】[高速下载](https://raw.githubusercontent.com/osurf/up/master/maiguo.3gp)
-【地主刘文彩真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/liuwencai.3gp) 【大跃进真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/DaYueJin.3gp)
+【古今奇观-藏字石】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/stone.3gp) 
+
+【64天安门事件】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/6-4.3gp) 
+
+【朝鲜战争始末】[下载视频](https://raw.githubusercontent.com/osurf/up/master/koreawar.3gp)  
+
+【江泽民卖国】[高速下载](https://raw.githubusercontent.com/osurf/up/master/maiguo.3gp)
+
+【地主刘文彩真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/liuwencai.3gp) 
+
+【大跃进真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/DaYueJin.3gp)
 
 【纪录片：我们告诉未来 】 [在线播放](https://rutube.ru/video/person/1801275/)
 
-【九评共产党】 [在线播放](https://rutube.ru/video/person/1801275/)  [共产党百年真相](https://git.io/JeO76)
+【九评共产党】 [在线播放](https://rutube.ru/video/person/1801275/)  
+
+[共产党百年真相](https://git.io/JeO76)
 
 【绝处逢生】
 
