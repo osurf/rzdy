@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
-《共<m>产主义的终极目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/osurf/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
+《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/osurf/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
  
  本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
  
@@ -21,11 +21,11 @@
 **●最新翻墙软件下载**
 
 
-【电脑版翻墙软件】  看动态网，晓天下事！
+【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
-**自由门** 自由门7.68版（2019年6月15日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.68版（2019年6月15日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
-**无界浏览** 无界浏览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+**无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
 
 **无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
 
@@ -39,9 +39,9 @@
 
 2019-2月12日无界发布安卓版4.6 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?)
 
-**自由门安卓版** [下载地址](https://git.io/fgma)
+**自 由 门安卓版** [下载地址](https://git.io/fgma)
 
-**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
+**新 唐 人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
 
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
