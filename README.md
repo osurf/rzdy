@@ -66,13 +66,15 @@
 ---------------------------------------------------------
 **●电子书下载**
 
-**最新PDF电子期刊《真相》**：[点击下载](https://raw.githubusercontent.com/osurf/osurf/master/zx96.pdf) 
+**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/osurf/master/zx96.pdf)  [点击下载第97期](https://raw.githubusercontent.com/osurf/osurf/master/zx97.pdf) 
 
 [禁书在线阅读](https://git.io/JeO72)
 
 **九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
 
 **解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
+
+**真实的马克思** [点击下载pdf版](https://raw.githubusercontent.com/osurf/osurf/master/zsmx.pdf)
 
 **江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
 
@@ -136,4 +138,7 @@ QQ或360浏览器流氓拦截请放行。
 -----------------------------------------------------------
 
 问题反馈：lili.9583@gmail.com
+
+<img src="https://visitor-count-badge.herokuapp.com/total.svg?repo_id=osurf_zdy_www">
+<img src="https://visitor-count-badge.herokuapp.com/today.svg?repo_id=osurf_zdy_www">
 
