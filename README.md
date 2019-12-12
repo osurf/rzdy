@@ -66,7 +66,7 @@
 ---------------------------------------------------------
 **●电子书下载**
 
-**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/osurf/master/zx96.pdf)  [点击下载第97期](https://raw.githubusercontent.com/osurf/osurf/master/zx97.pdf) 
+**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/osurf/master/zx96.pdf)  [第97期](https://raw.githubusercontent.com/osurf/osurf/master/zx97.pdf) 
 
 [禁书在线阅读](https://git.io/JeO72)
 
@@ -139,6 +139,5 @@ QQ或360浏览器流氓拦截请放行。
 
 问题反馈：lili.9583@gmail.com
 
-<img src="https://visitor-count-badge.herokuapp.com/total.svg?repo_id=osurf_zdy_www">
-<img src="https://visitor-count-badge.herokuapp.com/today.svg?repo_id=osurf_zdy_www">
+<img src="https://visitor-count-badge.herokuapp.com/total.svg?repo_id=osurf_zdy_www"> <img src="https://visitor-count-badge.herokuapp.com/today.svg?repo_id=osurf_zdy_www">
 
