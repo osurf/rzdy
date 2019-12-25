@@ -12,7 +12,7 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
-《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/osurf/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/osurf/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
+《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/zdy/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/zdy/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
  
  本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
  
@@ -23,25 +23,25 @@
 
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
-**自 由 门** 自 由 门7.70版（2019年12月19日) [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.70版（2019年12月19日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
-**无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u.rar)
+**无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
-**无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/u1703.xpi)
+**无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u1703.xpi)
 
 浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
 
-**爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iPPOTV.rar)
+**爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iPPOTV.rar)
 
 【安卓版翻墙软件】
 
 【★推荐★】**无界一点通**安卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
-2019-2月12日无界发布安卓版4.6 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/osurf/master/um.apk?)
+2019-2月12日无界发布安卓版4.6 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
 **自 由 门安卓版** [下载地址](https://git.io/fgma)
 
-**新 唐 人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/osurf/master/iNTD_TV.apk)
+**新 唐 人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iNTD_TV.apk)
 
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
@@ -66,21 +66,21 @@
 ---------------------------------------------------------
 **●电子书下载**
 
-**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/osurf/master/zx96.pdf)  [第97期](https://raw.githubusercontent.com/osurf/osurf/master/zx97.pdf) 
+**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/zdy/master/zx96.pdf)  [第97期](https://raw.githubusercontent.com/osurf/zdy/master/zx97.pdf) 
 
 [禁书在线阅读](https://git.io/JeO72)
 
-**九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
+**九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
 
-**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
+**解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_jtdwh.zip)
 
-**真实的马克思** [点击下载pdf版](https://raw.githubusercontent.com/osurf/osurf/master/zsmx.pdf)
+**真实的马克思** [点击下载pdf版](https://raw.githubusercontent.com/osurf/zdy/master/zsmx.pdf)
 
-**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
+**江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_jqr.zip)
 
-**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
+**风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_fytdx.zip)
 
-**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
+**绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_jcfs.zip)
 
 **●经典视频下载**（高速）
 
@@ -114,7 +114,7 @@
 
 愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
 
-[TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
+[TXT电子书点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_jcfs.zip)
 
 -------------------------------------------------------------
 
