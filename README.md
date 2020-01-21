@@ -31,7 +31,7 @@
 
 浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
 
-**爱博电视**  IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iPPOTV.rar)
+**爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iPPOTV.rar)
 
 【安卓版翻墙软件】
 
@@ -40,8 +40,6 @@
 2019-2月12日无界发布安卓版4.6 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
 **自 由 门安卓版** [下载地址](https://git.io/fgma)
-
-**新 唐 人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iNTD_TV.apk)
 
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
