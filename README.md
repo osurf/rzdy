@@ -2,7 +2,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/JeO7i" target=_blank><STRONG><FONT size=4>香港人反抗暴政</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
+打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/JeO7i" target=_blank><STRONG><FONT size=4>武汉肺炎爆发</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
 **本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
@@ -26,10 +26,6 @@
 **自 由 门** 自 由 门7.70版（2019年12月19日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
-
-**无界火狐扩展**  2017-11-01 更新 [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u1703.xpi)
-
-浏览器下载后用鼠标拉到火狐浏览器，点击“安装”。安装后，点击火狐右上角的无界图标，点击开关即可开启或关闭。 连接成功后，无界图标变成彩色。支持Windows, Mac, Linux, 32/64
 
 **爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iPPOTV.rar)
 
