@@ -4,7 +4,9 @@
 
 打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/JeO7i" target=_blank><STRONG><FONT size=4>武汉肺炎爆发</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
-**本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！如果本页图片或软件无法下载，请尝试刷新页面即可。
+**本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
+
+**如果本页图片或软件无法下载，请尝试刷新页面即可。**
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，敬请广传,功德无量！**
 
