@@ -24,7 +24,7 @@
  
  ----------------------------------------------------------------------
 
-**●最新翻墙软件下载**
+**●最新翻墙软件下载** 如无法下载，刷新页面即可
 
 
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
@@ -64,9 +64,9 @@
 发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
 
 ---------------------------------------------------------
-**●电子书下载**
+**●电子书下载** 如无法下载，刷新页面即可
 
-**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/zdy/master/zx96.pdf)  [第97期](https://raw.githubusercontent.com/osurf/zdy/master/zx97.pdf) 
+**最新PDF电子期刊《真相》**：[点击下载第96期](https://raw.githubusercontent.com/osurf/zdy/master/zx96.pdf)  [第97期](https://raw.githubusercontent.com/osurf/zdy/master/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://raw.githubusercontent.com/osurf/zdy/master/zjmj-read.pdf) 
 
 [禁书在线阅读](https://git.io/JeO72)
 
