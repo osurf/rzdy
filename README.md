@@ -29,7 +29,7 @@
 
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
-**自 由 门** 自 由 门7.76版（2020年3月6日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.77版（2020年3月13日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
@@ -41,7 +41,7 @@
 
 2019-2月12日无界发布安卓版4.6 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
-**自 由 门安卓版** [下载地址](https://git.io/fgma)
+**自 由 门安卓版** [下载地址](https://git.io/fgma) | 自由门安卓版4.0版 [下载](https://raw.githubusercontent.com/osurf/zdy/master/fgma40.apk)  安卓Android 7或以上的智能手机或平板电脑使用
 
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
