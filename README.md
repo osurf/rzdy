@@ -29,7 +29,7 @@
 
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
-**自 由 门** 自 由 门7.77版（2020年3月13日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.78版（2020年3月18日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
