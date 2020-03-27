@@ -41,7 +41,7 @@
 
 【★推荐★】**无界一点通**安卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
-2019-2月12日无界发布安卓版4.6 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
+2020-3月19日无界发布安卓版4.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
 **自 由 门安卓版** [下载地址](https://git.io/fgma) | 自由门安卓版4.0版 [下载](https://raw.githubusercontent.com/osurf/zdy/master/fgma40.apk)  安卓Android 7或以上的智能手机或平板电脑使用
 
