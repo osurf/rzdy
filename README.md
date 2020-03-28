@@ -43,7 +43,7 @@
 
 2020-3月19日无界发布安卓版4.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
-**自 由 门安卓版** [下载地址](https://git.io/fgma) | 自由门安卓版4.0版 [下载](https://raw.githubusercontent.com/osurf/zdy/master/fgma40.apk)  安卓Android 7或以上的智能手机或平板电脑使用
+**自 由 门安卓版** [下载地址](https://git.io/fgma) || 自由门安卓版4.1版  [下载](https://raw.githubusercontent.com/osurf/zdy/master/fgma.apk)  安卓Android 7或以上的智能手机或平板电脑使用
 
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
