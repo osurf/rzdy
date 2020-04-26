@@ -31,7 +31,7 @@
 
 **翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
-**自 由 门** 自 由 门7.78版（2020年3月18日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.79版（2020年4月25日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
@@ -64,6 +64,8 @@
 [声明退出党团队请点击这里](http://t.cn/AisCKUdV) [网址2](http://t.cn/AisCKUdt) 
 
 发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
+
+如果有人不幸感染了中共病毒，不妨真心念“打倒中共恶魔”，或许奇迹就会出现。远离中共，谴责中共，不为中共站台，作为个人、组织和国家，都可能因此减轻甚至避免病毒侵害，迎接美好未来。
 
 ---------------------------------------------------------
 **●电子书下载** 如无法下载，刷新页面即可
