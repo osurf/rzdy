@@ -31,7 +31,7 @@
 
 **翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
-**自 由 门** 自 由 门7.86版（2020年6月26日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.87版（2020年7月7日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
@@ -40,7 +40,7 @@
 【安卓版翻墙软件】
 
 【★推荐★】**无界一点通**1卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
-2323
+
 2020-3月19日无界发布安卓版4.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
 **自 由 门安卓版** [下载地址](https://git.io/fgma) || 自由门安卓版4.2版  [下载](https://raw.githubusercontent.com/osurf/zdy/master/fgma.apk)  安卓手机或平板电脑使用
