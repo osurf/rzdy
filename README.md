@@ -31,7 +31,7 @@
 
 **翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
-**自 由 门** 自 由 门7.88版（2020年7月20日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.89版（2020年9月4日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
