@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/osurf/zdy/master/tu2.gif)
+![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
@@ -16,7 +16,7 @@
 
 ----------------------------------------------------------------------
 
-![](https://raw.githubusercontent.com/osurf/zdy/master/Web-Banner.jpg)
+![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
 《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://bitbucket.org/fastfile2010/aaa202102/downloads/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/jpn-s.pdf)  
  
@@ -52,7 +52,7 @@
 ------------------------------------------------------------
 
 
-![](https://raw.githubusercontent.com/osurf/zdy/master/tu3.gif)
+![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 <a name="2" id="2" target="_blank"></a> <span id="2"></span>
 
 **●快退出共产党、共青团、少先队，保平安！**
@@ -122,7 +122,7 @@
 
 -------------------------------------------------------------
 
-![](https://raw.githubusercontent.com/osurf/zdy/master/tu4.gif)
+![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
 
 **●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
