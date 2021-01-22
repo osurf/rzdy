@@ -16,7 +16,7 @@
 
 ----------------------------------------------------------------------
 
-![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
+![](https://bitbucket.org/fastfile2010/aaa202102/downloads/Web-Banner.jpg)
 
 《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/zdy/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/zdy/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
  
