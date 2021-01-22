@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
+![](https://bitbucket.org/fastfile2010/aaa202102/downloads/tu2.gif)
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
