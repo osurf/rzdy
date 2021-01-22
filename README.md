@@ -31,7 +31,7 @@
 
 **翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
-**自 由 门** 自 由 门7.94版（2021年1月18日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
+**自 由 门** 自 由 门7.94版（2021年1月18日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg.rar)  [专业版下载](https://git.io/fgp)
 
 **无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/u.rar)
 
@@ -41,7 +41,7 @@
 
 【★推荐★】**无界一点通**1卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
-2020-12月17日无界发布安卓版4.9 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
+2020-12月17日无界发布安卓版4.9 下载地址 [无界一点通下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um.apk)
 
 **自 由 门安卓版** [下载地址](https://git.io/fgma) || 自由门安卓版4.2版  [下载](https://raw.githubusercontent.com/osurf/zdy/master/fgma.apk)  安卓手机或平板电脑使用
 
@@ -61,7 +61,7 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿5千万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”！ 天要灭中共，不要给中共邪党做陪葬! 
 
-[声明退出党团队请点击这里](http://tcomn.huaf.tk/) [网址2](http://huaf.cf/) 
+[声明退出党团队请点击这里](http://tc2omn.huaf.tk/) [网址2](http://huaf.cf/) 
 
 发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
 
