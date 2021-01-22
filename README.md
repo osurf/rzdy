@@ -18,7 +18,7 @@
 
 ![](http://bitbucket.org/fastfile2010/aaa202102/downloads/Web-Banner.jpg)
 
-《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/zdy/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/zdy/master/jpn-s.pdf) ||[MP3音频下载](https://od.lk/f/OTJfNDI2NzA4OF8) 
+《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/zdy/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/zdy/master/jpn-s.pdf)  
  
  本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
  
@@ -61,7 +61,7 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿5千万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”！ 天要灭中共，不要给中共邪党做陪葬! 
 
-[声明退出党团队请点击这里](http://tc2omn.huaf.tk/) [网址2](http://huaf.cf/) 
+[声明退出党团队请点击这里](http://tc2omn.huaf.tk/) |||  [网址2](http://huaf.cf/) 
 
 发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
 
