@@ -1,4 +1,4 @@
-![](https://bitbucket.org/fastfile2010/aaa202102/downloads/tu2.gif)
+![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
@@ -16,7 +16,7 @@
 
 ----------------------------------------------------------------------
 
-![](http://bitbucket.org/fastfile2010/aaa202102/downloads/Web-Banner.jpg)
+![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
 《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://raw.githubusercontent.com/osurf/zdy/master/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://raw.githubusercontent.com/osurf/zdy/master/jpn-s.pdf)  
  
