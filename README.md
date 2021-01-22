@@ -1,4 +1,4 @@
-![](http://camo.githubusercontent.com/8c9be7e93e71816590308b47201e2ef9812482149f074436c381df68e8a6a967/687474703a2f2f6269746275636b65742e6f72672f6661737466696c65323031302f6161613230323130322f646f776e6c6f6164732f7475322e676966)
+![](https://bitbucket.org/fastfile2010/aaa202102/downloads/tu2.gif)
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
