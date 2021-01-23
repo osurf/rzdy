@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
+<IMG src="https://easyreadfs.nosdn.127.net/4e1991844cca4df4a92c4b229c1642e9.gif">
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
