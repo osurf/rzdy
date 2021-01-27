@@ -69,9 +69,9 @@
 如果有人不幸感染了中共病毒，不妨真心念“打倒中共恶魔”，或许奇迹就会出现。远离中共，谴责中共，不为中共站台，作为个人、组织和国家，都可能因此减轻甚至避免病毒侵害，迎接美好未来。
 
 ---------------------------------------------------------
-**●电子书下载** 如无法下载，刷新页面即可
+**●电子书下载** 
 
-**最新PDF电子期刊《真相》**：[点击下载第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) 
+**最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
 
 [禁书在线阅读](https://git.io/JeO72)
 
