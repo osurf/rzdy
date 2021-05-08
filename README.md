@@ -34,7 +34,7 @@
 
 **自 由 门** 自 由 门7.95版（2021年3月3日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg.rar)  [专业版下载](https://git.io/fgp)
 
-**无界 浏览** 无 界 浏 览21.20 (2021年4月13日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u.rar)
+**无界 浏览** 无 界 浏 览21.20 (2021年4月13日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u2120.rar)
 
 **爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/iPPOTV.rar)
 
