@@ -34,7 +34,7 @@
 
 **自 由 门** 自 由 门7.95版（2021年3月3日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg.rar)  [专业版下载](https://git.io/fgp)
 
-**无界 浏览** 无 界 浏 览19.02 (2019年2月15日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u.rar)
+**无界 浏览** 无 界 浏 览21.20 (2021年4月13日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u.rar)
 
 **爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/iPPOTV.rar)
 
@@ -42,7 +42,7 @@
 
 【★推荐★】**无界一点通**1卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
-2020-12月17日无界发布安卓版4.9 下载地址 [无界一点通下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um.apk)
+2021-5月4日无界发布安卓版5.0 下载地址 [无界一点通下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um5.apk)
 
 **自 由 门安卓版** [下载地址](https://git.io/fgma) || 自由门安卓版4.2版  [下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/fgma.apk)  安卓手机或平板电脑使用
 
