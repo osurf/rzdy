@@ -3,9 +3,9 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://github.com/dagcey288/ntdtv/blob/master/gb/442749_1.md?dfdagcey288h#1" target=_blank><STRONG><FONT size=4>避疫之道</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
+打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://github.com/dagcey288/ntdtv/blob/master/gb/442749_1.md?dfdagcey288h#1" target=_blank><STRONG><FONT size=4>避疫之道</FONT></STRONG></A></FONT></STRONG>  | <A href="https://github.com/pmzjhb3698/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/pmzjhb3698/djy/blob/master/gb/n24hr.md?flcbzs#1" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/pmzjhb3698/djy/blob/master/gb/news392.md?flcbzs#1" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/pmzjhb3698/djy/blob/master/gb/news2007.md?fldfcbzs#1" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
-**本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
+**本页固定短网址**：**https://github.com/osurf/zdy**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
 **如果本页图片或软件无法下载，请尝试刷新页面即可。**
 
@@ -69,7 +69,7 @@
 
 **最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
 
-[禁书在线阅读](https://git.io/JeO72)
+[禁书在线阅读](https://github.com/pmzjhb3698/www/blob/master/README.md?fldfcbzs#1)
 
 **九评共产党** [点击下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
 
@@ -107,7 +107,7 @@
 
 【九评共产党】 [在线播放](https://rutube.ru/video/person/1801275/)  
 
-[共产党百年真相](https://git.io/JeO76)
+[共产党百年真相](https://github.com/pmzjhb3698/ntdtv/blob/master/gb/prog1647_1.md?fldfcbzs#1)
 
 【绝处逢生】
 
@@ -123,7 +123,7 @@
 
 **●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
-[点击访问明慧网](http://t.cn/Ri80wPK)  建议使用翻墙软件访问！
+[访问明慧网]  建议使用翻墙软件访问！
 
 回归那更高、更美好的天国家园—是生命在轮回中苦苦的祈盼！也是生命存在的真正意义！
 
@@ -132,7 +132,7 @@
 
 **●友好链接**
 
-[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://git.io/JeO7n)|[新唐人电视台](https://git.io/JeO7X)
+[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://github.com/pmzjhb3698/djy/blob/master/gb/nsc413.md?flcbzs#1)|[新唐人电视台](https://github.com/pmzjhb3698/ntdtv#1)
 
 QQ或360浏览器流氓拦截请放行。
 
