@@ -40,11 +40,9 @@
 
 【安卓版翻墙软件】 安卓手机或平板电脑使用
 
-【★推荐★】**无界一点通**安卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
+**无界安卓版**  下载地址 [无界一点通5.0下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um5.apk)
 
-2021-5月4日无界发布安卓版5.0 下载地址 [无界一点通下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um5.apk)
-
-**自 由 门安卓版**  自由门VPN1.3  [下  载](https://bitbucket.org/fastfile2010/aaa202102/downloads/fgvpn.apk)  
+**自由门安卓版**  自由门VPN1.3  [下  载](https://bitbucket.org/fastfile2010/aaa202102/downloads/fgvpn.apk)  
  
 **网门安卓版**  下载地址 [网门大陆版](https://j.mp/ogatee)  
  
