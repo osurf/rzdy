@@ -44,9 +44,6 @@
 
 **自由门安卓版**  自由门VPN1.3  [下  载](https://bitbucket.org/fastfile2010/aaa202102/downloads/fgvpn.apk)  
  
-**网门安卓版**  下载地址 [网门大陆版](https://j.mp/ogatee)  
- 
- **环门安卓版** 下载地址[环门安卓版](https://j.mp/ogatea5)
  
 
 ------------------------------------------------------------
@@ -133,7 +130,7 @@
 
 **●友好链接**
 
-[网门oGate](https://github.com/ogate2/ogate)   | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://github.com/pmzjhb3698/djy/blob/master/gb/nsc413.md?flcbzs#1)|[新唐人电视台](https://github.com/pmzjhb3698/ntdtv#1)
+ [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://github.com/pmzjhb3698/djy/blob/master/gb/nsc413.md?flcbzs#1)|[新唐人电视台](https://github.com/pmzjhb3698/ntdtv#1)
 
 QQ或360浏览器流氓拦截请放行。
 
