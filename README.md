@@ -65,7 +65,7 @@
 ---------------------------------------------------------
 **●电子书下载** 
  
-★**《中华文明史》** 章天亮编著  下载 [pdf版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.pdf)  [pdf版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.pdf)  [ epub版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.epub)  [ epub版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.epub)
+**《中华文明史》** 章天亮编著  下载 [pdf版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.pdf)  [pdf版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.pdf)  [ epub版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.epub)  [ epub版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.epub)
   
 **最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
 
