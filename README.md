@@ -56,7 +56,7 @@
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。中共不等于中国！爱国不等于爱党！
 
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿5千万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”！ 天要灭中共，不要给中共邪党做陪葬! 
+快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿9千万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”！ 天要灭中共，不要给中共邪党做陪葬! 
 
 [声明退出党团队请点击这里](http://huaf2.tk/) |||  [网址2](http://huaf2.ml/) 
 
@@ -64,7 +64,9 @@
 
 ---------------------------------------------------------
 **●电子书下载** 
-
+ 
+**《中华文明史》** 章天亮编著  下载pdf版 [上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.pdf)  [下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.pdf)  epub版 [上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.epub)  [下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.epub)
+  
 **最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
 
 [禁书在线阅读](https://github.com/pmzjhb3698/www/blob/master/README.md?fldfcbzs#1)
