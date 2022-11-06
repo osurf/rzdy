@@ -32,7 +32,7 @@
 
 **翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
-**自 由 门** 自 由 门7.97版（2021年7月17日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg797p.rar) 
+**自 由 门** 自 由 门7.98版（2022年10月11日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg798p.rar) 
 
 **无界 浏览** 无 界 浏 览21.32 (2021年7月0日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u2132.rar)
 
