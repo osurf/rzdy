@@ -30,7 +30,6 @@
 
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
-**翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
 **自 由 门** 自 由 门7.98版（2022年10月11日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg798p.rar) 
 
@@ -40,11 +39,11 @@
 
 【安卓版翻墙软件】 安卓手机或平板电脑使用
 
-**无界安卓版**  下载地址 [无界一点通5.0下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um5.apk)
+**无界安卓版**  ★推荐★ 下载地址 [无界一点通5.0下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um5.apk)
 
 **自由门安卓版**  自由门VPN1.3  [下  载](https://bitbucket.org/fastfile2010/aaa202102/downloads/fgvpn.apk)  
  
- 
+**翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
 ------------------------------------------------------------
 
