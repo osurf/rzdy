@@ -132,7 +132,7 @@
 
 **●友好链接**
 
- [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://github.com/pmzjhb3698/djy/blob/master/gb/nsc413.md?flcbzs#1)|[新唐人电视台](https://github.com/pmzjhb3698/ntdtv#1)
+ [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|
 
 QQ或360浏览器流氓拦截请放行。
 
