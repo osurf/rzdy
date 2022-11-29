@@ -3,7 +3,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/tui590285/djy/blob/master/gb/n24hr.md?flcbzs#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
+墙本不该存在，翻之理所当然!打开天窗,听一听外面的声音... <A href="https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/tui590285/djy/blob/master/gb/n24hr.md?flcbzs#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
 
 **本页固定短网址**：**http://fqbl.ga**  推荐使用 火狐，chrome等非国产浏览器访问！
 
