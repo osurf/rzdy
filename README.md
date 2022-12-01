@@ -62,15 +62,13 @@
 ---------------------------------------------------------
 **●电子书下载** 
  
- **真相特刊**：[江泽民的三大罪恶](https://bitbucket.org/fastfile2010/aaa202102/downloads/zxtk-jzm.pdf)
+ **真相特刊**：PDF[江泽民的三大罪恶](https://bitbucket.org/fastfile2010/aaa202102/downloads/zxtk-jzm.pdf)
 
-**吉恩夏普**[《从独裁到民主》](https://bitbucket.org/fastfile2010/aaa202102/downloads/ducaitominzhu.pdf) 一部实用操作手册
+**吉恩夏普**[《从独裁到民主》](https://bitbucket.org/fastfile2010/aaa202102/downloads/ducaitominzhu.pdf) PDF 一部实用操作手册
 
 **《中华文明史》** 章天亮编著  下载 [pdf版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.pdf)  [pdf版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.pdf)  [ epub版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.epub)  [ epub版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.epub)
   
 **最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
-
-[禁书在线阅读](https://github.com/pmzjhb3698/www/blob/master/README.md?fldfcbzs#1)
 
 **九评共产党** [点击下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/ebook_9p.zip) <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4>在线阅读 </FONT></STRONG></A></FONT></STRONG> 
 
@@ -86,7 +84,7 @@
 
 **●经典视频下载**（高速）
 
-【《活摘 十年调查》】  [在线播放01](https://rutube.ru/video/2adf8296aa690a51ef94a10edde035ff/)  [在线播放02](https://rutube.ru/video/a74b61cc1cf0f849bf7d061a0d249920/)  [聚焦“中共活摘器官”暴行](https://git.io/JeO71)
+【《活摘 十年调查》】  [在线播放01](https://rutube.ru/video/2adf8296aa690a51ef94a10edde035ff/)  [在线播放02](https://rutube.ru/video/a74b61cc1cf0f849bf7d061a0d249920/) 
 
 1999年以后，在中国发生的活摘暴行，一个号称为人民服务的政党在活摘自己国民的器官，这是这个星球没有过的罪恶。今天此罪恶还在延续.。。。
 
