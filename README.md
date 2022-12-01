@@ -3,9 +3,9 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-墙本不该存在，翻之理所当然!打开天窗,听一听外面的声音... <A href="https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/tui590285/djy/blob/master/gb/n24hr.md?flcbzs#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
+墙本不该存在，翻之理所当然! 打开天窗,听一听外面的声音... <A href="https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/tui590285/djy/blob/master/gb/n24hr.md?flcbzs#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
 
-**本页固定短网址**：**http://fqbl.ga**  推荐使用 火狐，chrome等非国产浏览器访问！
+**本页固定短网址**：**http://fqbl.ga**  推荐使用 火狐，chrome等非国产浏览器访问(重要)！
 
 **如果本页图片或软件无法下载，请尝试刷新页面。**
 
@@ -59,11 +59,13 @@
 
 [声明退出党团队请点击这里](http://fqbl2022.tk/) |||  [网址2](http://fqbl2022.ml/) 
 
-发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
-
 ---------------------------------------------------------
 **●电子书下载** 
  
+ **真相特刊**：[江泽民的三大罪恶](https://bitbucket.org/fastfile2010/aaa202102/downloads/zxtk-jzm.pdf)
+
+**吉恩夏普**[《从独裁到民主》](https://bitbucket.org/fastfile2010/aaa202102/downloads/ducaitominzhu.pdf) 一部实用操作手册
+
 **《中华文明史》** 章天亮编著  下载 [pdf版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.pdf)  [pdf版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.pdf)  [ epub版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.epub)  [ epub版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.epub)
   
 **最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
