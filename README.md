@@ -64,8 +64,6 @@
  
  **真相特刊**：PDF[江泽民的三大罪恶](https://bitbucket.org/fastfile2010/aaa202102/downloads/zxtk-jzm.pdf)
 
-**吉恩夏普**[《从独裁到民主》](https://bitbucket.org/fastfile2010/aaa202102/downloads/ducaitominzhu.pdf) PDF 一部实用操作手册
-
 **《中华文明史》** 章天亮编著  下载 [pdf版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.pdf)  [pdf版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.pdf)  [ epub版上部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-a.epub)  [ epub版下部](https://bitbucket.org/fastfile2010/aaa202102/downloads/zhwms-b.epub)
   
 **最新PDF电子期刊《真相》**：[第96期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx96.pdf)  [第97期](https://bitbucket.org/fastfile2010/aaa202102/downloads/zx97.pdf) [特刊：疫情凶猛 自救秘诀](https://bitbucket.org/fastfile2010/aaa202102/downloads/zjmj-read.pdf) ||[疫情特刊：瘟疫有眼](https://bitbucket.org/fastfile2010/aaa202102/downloads/wyyy.pdf) 
@@ -105,8 +103,6 @@
 【纪录片：我们告诉未来 】 [在线播放](https://rutube.ru/video/person/1801275/)
 
 【九评共产党】 [在线播放](https://rutube.ru/video/person/1801275/)  
-
-[共产党百年真相](https://github.com/pmzjhb3698/ntdtv/blob/master/gb/prog1647_1.md?fldfcbzs#1)
 
 【绝处逢生】
 
