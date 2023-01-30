@@ -31,9 +31,9 @@
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
 
-**自 由 门** 自 由 门7.98版（2022年10月11日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg798p.rar) 
+**自 由 门** 7.98版（2022年10月11日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg798p.rar) 
 
-**无界 浏览** 无 界 浏 览21.32 (2021年7月0日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u2132.rar)
+**无界 浏览** 21.32 (2021年7月0日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u2132.rar)
 
 **爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/iPPOTV.rar)
 
