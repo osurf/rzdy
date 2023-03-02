@@ -31,7 +31,7 @@
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
 
-**自 由 门** 7.98版（2022年10月11日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg798p.rar) 
+**自 由 门** 7.99版（2023年2月27日) [点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg799p.rar) 
 
 **无界 浏览** 21.32 (2021年7月0日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u2132.rar)
 
