@@ -3,7 +3,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/tui590285/djy/blob/master/gb/n24hr.md?flcbzs#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
+打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
 
 **本页固定短网址**：**http://fqbl.ga**  推荐使用 火狐，chrome等非国产浏览器访问(重要)！
 
@@ -124,10 +124,6 @@
 
 
 -----------------------------------------------------------
-
-**●友好链接**
-
-[广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)|[大纪元新闻](https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#)|[新唐人电视台](https://github.com/tui590285/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#)
 
 QQ或360等国产浏览器流氓拦截请放行。
 
