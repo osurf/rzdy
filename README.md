@@ -5,7 +5,7 @@
 
 打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
 
-**本页固定短网址**：**http://fqbl.ga**  推荐使用 火狐，chrome等非国产浏览器访问(重要)！
+**本页固定短网址**：**http://fqbl.tk**  推荐使用 火狐，chrome等非国产浏览器访问(重要)！
 
 **如果本页图片或软件无法下载，请尝试刷新页面。**
 
