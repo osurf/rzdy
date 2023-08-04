@@ -19,6 +19,8 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
+**《为什么会有人类》**法轮功创始人揭示天机！ [PDF下载阅读](https://bitbucket.org/fastfile2010/aaa202102/downloads/20230120.pdf)  
+
 《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://bitbucket.org/fastfile2010/aaa202102/downloads/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/jpn-s.pdf)  
  
  本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
