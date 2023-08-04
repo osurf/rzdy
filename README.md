@@ -19,7 +19,7 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
-**《为什么会有人类》** 法轮功创始人揭示天机！ [PDF下载阅读](https://bitbucket.org/fastfile2010/aaa202102/downloads/20230120.pdf)  
+**《为什么会有人类》** 法轮功创始人揭示天机！ [在线阅读](https://gitea.com/sw23ew/www/raw/branch/main/jw20230120-letter.pdf) || [下载PDF文档](https://bitbucket.org/fastfile2010/aaa202102/downloads/20230120.pdf) 
 
 《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://bitbucket.org/fastfile2010/aaa202102/downloads/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/jpn-s.pdf)  
  
