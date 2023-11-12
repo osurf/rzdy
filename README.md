@@ -84,7 +84,7 @@
 
 **●经典视频下载**（高速）
 
-【《活摘 十年调查》】  [在线播放01](https://rutube.ru/video/2adf8296aa690a51ef94a10edde035ff/)  [在线播放02](https://rutube.ru/video/a74b61cc1cf0f849bf7d061a0d249920/) 
+【《活摘 十年调查》】  [在线播放](https://github.com/svappp)
 
 1999年以后，在中国发生的活摘暴行，一个号称为人民服务的政党在活摘自己国民的器官，这是这个星球没有过的罪恶。今天此罪恶还在延续.。。。
 
@@ -102,9 +102,9 @@
 
 【大跃进真相 】[下载视频](https://bitbucket.org/fastfile2010/aaa202102/downloads/DaYueJin.3gp)
 
-【纪录片：我们告诉未来 】 [在线播放](https://rutube.ru/video/person/1801275/)
+【纪录片：我们告诉未来 】 [在线播放](https://github.com/svappp)
 
-【九评共产党】 [在线播放](https://rutube.ru/video/person/1801275/)  
+【九评共产党】 [在线播放](https://github.com/svappp)  
 
 【绝处逢生】
 
