@@ -13,6 +13,8 @@
 
 ★★天灭中共，瘟疫预警。告訴您的親人和朋友，赶快退出中共的“党、团、队”组织，**三退保平安**，不跟邪党陪葬！★★
 
+ </FONT></STRONG><A href="https://d1j7c6m023fl7x.cloudfront.net/dta2V" target=_blank><STRONG><FONT size=4>纪录片《四亿人的觉醒》—对三退精神觉醒运动的调查</FONT></STRONG></A><STRONG><FONT size=4> 
+
 ★★诚心敬念“**法轮大法好、真善忍好**”，逢凶化吉，遇难呈祥,避瘟疫！★★
 
 ----------------------------------------------------------------------
@@ -61,6 +63,8 @@
 
 [声明退出党团队请点击这里](https://dfxrfb9070id6.cloudfront.net/tui) |||  [网址2](https://dhltq9qxjnmw2.cloudfront.net/tui) 
 
+ </FONT></STRONG><A href="https://d1j7c6m023fl7x.cloudfront.net/dta2V" target=_blank><STRONG><FONT size=4>纪录片《四亿人的觉醒》—对三退精神觉醒运动的调查</FONT></STRONG></A><STRONG><FONT size=4> 
+ 
 ---------------------------------------------------------
 **●电子书下载** 
  
@@ -102,7 +106,7 @@
 
 【大跃进真相 】[下载视频](https://bitbucket.org/fastfile2010/aaa202102/downloads/DaYueJin.3gp)
 
-【纪录片：我们告诉未来 】 [在线播放](https://github.com/svappp)
+【12集大型记录片：我们告诉未来 】 [在线播放](https://d3nx3jyvdb76se.cloudfront.net/DwRpH)
 
 【九评共产党】 [在线播放](https://github.com/svappp)  
 
@@ -124,6 +128,7 @@
 
 回归那更高、更美好的天国家园—是生命在轮回中苦苦的祈盼！也是生命存在的真正意义！
 
+【12集大型记录片：我们告诉未来 】 [在线播放](https://d3nx3jyvdb76se.cloudfront.net/DwRpH)
 
 -----------------------------------------------------------
 
