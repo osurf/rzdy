@@ -3,7 +3,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
+打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | [在线视频高速入口](https://d20sodwahzzwcx.cloudfront.net/98gj)
 
 **本页固定短网址**：**http://fqbl.tk**  推荐使用 火狐，chrome等非国产浏览器访问(重要)！
 
