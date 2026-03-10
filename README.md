@@ -21,7 +21,7 @@
 
 **《为什么会有人类》** 法轮功创始人揭示天机！ || [下载PDF文档](https://bitbucket.org/fastfile2010/aaa202102/downloads/20230120.pdf) 
 
-《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://bitbucket.org/fastfile2010/aaa202102/downloads/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/jpn-s.pdf)  
+《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://bitbucket.org/fastfile2010/aaa202102/downloads/gczydzjmd.zip) ||  [PDF阅读&打印版下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/jpn-s.pdf)  
  
  本着对神造生命的无比珍视，本着对人类的深切关怀，向世人系统分析和揭示“共产邪灵”通过破坏文化、败坏道德而毁灭人类的天大阴谋。
  
@@ -33,7 +33,7 @@
 【电脑版翻墙软件】  看 动 态 网，晓天下事！
 
 
-**自 由 门** 8.05版（2025年8月17日) [点击下载最新版](https://github.com/freegate-release/website/archive/fgmalatest.zip))  [8.0版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg800p.rar) 
+**自 由 门** 8.05版（2025年8月17日) [点击下载最新版](https://github.com/freegate-release/website/archive/fgmalatest.zip)) [8.0版](https://bitbucket.org/fastfile2010/aaa202102/downloads/fg800p.rar) 
 
 **无界 浏览** 21.32 (2021年7月10日)[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/u2132.rar)
 
