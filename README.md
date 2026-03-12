@@ -40,6 +40,7 @@
 **爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://bitbucket.org/fastfile2010/aaa202102/downloads/iPPOTV.rar)
 
 【安卓版翻墙软件】 安卓手机或平板电脑使用
+
 **自由门安卓版** ★推荐★ 自由门VPN1.7 -20260116 [下载](https://gitlab.com/szzd2/www/-/raw/master/szzd/fgvpn.apk)
  
 **无界安卓版**  下载地址 [无界一点通5.0下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/um5.apk)
